@@ -14,7 +14,7 @@ c+h and chats are always welcome but i am usually offtab, so please shoot me a w
 
 ⟢ i love d4dj, south park, flavor foley, vocaloid, utau, and a lot of other things. i have a lot of favorite ships and i
 usually stick pretty firmly to them depending on how fixated i am on said ship. but i really dont care because shipping is in
-fact not that deep. (ship list below)
+fact #notthatdeep. (ship list below)
 
 ~~
 
