@@ -17,7 +17,9 @@ usually stick pretty firmly to them depending on how fixated i am on said ship. 
 fact not that deep. (ship list below)
 
 ᢉ𐭩 saorika (lovelovelovelove), weroneo, kyoneo, neosophi (d4dj)
+
 ᢉ𐭩 dip (LOVE), stendy, weidi (south park)
+
 ᢉ𐭩 minoemu, minonene, emunene, tsukarui (proseka)
 
 
