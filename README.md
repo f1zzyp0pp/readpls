@@ -12,8 +12,9 @@ c+h and chats are always welcome but i am usually offtab, so please shoot me a w
 
 ⟢ i dont really have a dni as i WILL block a bitch (within reason)
 
-⟢ i love d4dj, south park, flavor foley, vocaloid, utau, and a lot of other things. i have a lot of favorite ships and i
-usually stick pretty firmly to them depending on how fixated i am on said ship. but i really dont care because shipping is in fact #notthatdeep (ship list below)
+⟢ i use slurs i can say, but i try not to do that around new people or people who are uncomfortable w it
+
+⟢ i love d4dj, south park, flavor foley, vocaloid, utau, and more. i have a lot of favorite ships and i stick pretty firmly to them depending on how fixated i am on said ship, but i really dont care because shipping is in fact #notthatdeep (ship list below). i LOVE ship interactions on pt. i love my ships im a fucking loser soz
 
 ~~
 
