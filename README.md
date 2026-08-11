@@ -18,7 +18,7 @@ c+h and chats are always welcome but i am usually offtab, so please shoot me a w
 
 ~~
 
-ᢉ𐭩 saorika (lovelovelovelove), weroneo, kyoneo, neosophi (d4dj)
+ᢉ𐭩 saorika (lovelovelovelove), weroneo, kyoneo, neosophi (d4dj). i looove neo ships ok
 
 ᢉ𐭩 dip (LOVE), stendy, weidi (south park)
 
