@@ -14,15 +14,7 @@ c+h and chats are always welcome but i am usually offtab, so please shoot me a w
 
 ⟢ i use slurs i can say, but i try not to do that around new people or people who are uncomfortable w it
 
-⟢ i love d4dj, south park, flavor foley, vocaloid, utau, and more. i have a lot of favorite ships and i stick pretty firmly to them depending on how fixated i am on said ship, but i really dont care because shipping is in fact #notthatdeep (ship list below). i LOVE ship interactions on pt. i love my ships im a fucking loser soz
-
-~~
-
-ᢉ𐭩 saorika (lovelovelovelove), weroneo, kyoneo, neosophi (d4dj). i looove neo ships ok
-
-ᢉ𐭩 dip (LOVE), stendy, weidi (south park)
-
-ᢉ𐭩 minoemu, minonene, emunene, tsukarui (proseka)
+⟢ i love d4dj, south park, flavor foley, vocaloid, utau, and more. i have a lot of favorite ships and i stick pretty firmly to them depending on how fixated i am on said ship, but i really dont care because shipping is in fact #notthatdeep
 
 ~~
 
